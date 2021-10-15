@@ -3,6 +3,9 @@
 
 ![juan Gaitan](https://user-images.githubusercontent.com/81452895/134609491-b3c08974-197f-48b3-8fef-348c431fe506.gif)
 
+Contacto:
+https://www.linkedin.com/in/juan-gaitan17/
+diablogaitan2@gmail.com
 <!--
 **JuanGaitan1/JuanGaitan1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
